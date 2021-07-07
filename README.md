@@ -11,16 +11,16 @@ As a formal way:  A fresh graduate from Computer Science major with great progra
 
 Informally: A person motivated by curiosity, thirst for knowledge, and enthusiasm to try new things. 
 
-I spend a lot of my free time reading philosophy, psychology, life experiences, and technology. I found reading is a way to learn and benefit from peoples' experiences, as well as give me a new perspective on things and explore new ideas. Haruki Murakami is one of my favorite authors, his novels are a masterpiece makes you believe as if the events described could actually happen.:crystal_ball:  
+I spend a lot of my free time reading philosophy, psychology, life experiences, and technology. I found reading is a way to learn and benefit from peoples' experiences and give me a new perspective on things and explore new ideas. Haruki Murakami is one of my favorite authors, and his novels are a masterpiece that makes you believe as if the events described could actually happen.:crystal_ball:  
 Also, I love [Mana](https://mana.net/) and [Thmanyah](https://thmanyah.com/) articles.   
 
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on Nanodegree Projects and develop my skills as a Full-stack developer. 
-- 🌱 I’m currently Taking a [Full-Stack Web Developer Nanodegree](https://www.udacity.com/course/full-stack-web-developer-nanodegree--nd0044) from [Udacity](https://www.udacity.com/). 
-- 👯 I’m looking to collaborate on Freelance Projects.
-- 🤔 I’m looking for help with hmm no, I think for now. 
+- 🔭 I'm currently working on Nanodegree Projects and develop my skills as a Full-stack developer. 
+- 🌱 I'm currently taking a [Full-Stack Web Developer Nanodegree](https://www.udacity.com/course/full-stack-web-developer-nanodegree--nd0044) from [Udacity](https://www.udacity.com/). 
+- 👯 I'm looking to collaborate on Freelance Projects.
+- 🤔 I'm looking for help with hmm no, I think for now. 
 - 💬 Ask me about anything, literally anything in your mind, and if I know it, I will help you or search for something that could help you. 
 - 📫 How to reach me: You can jump to my Twitter account [@AsrarAljuhani](https://twitter.com/AsrarAljuhani)
 - 😄 Pronouns: She/Her
