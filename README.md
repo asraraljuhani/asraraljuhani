@@ -11,7 +11,7 @@ As a formal way:  A fresh graduate from Computer Science major with great progra
 
 Informally: A person motivated by curiosity, thirst for knowledge, and enthusiasm to try new things. 
 
-I spend a lot of my free time reading philosophy, psychology, life experiences, and technology. I found reading is a way to learn and benefit from peoples' experiences and give me a new perspective on things and explore new ideas. Haruki Murakami is one of my favorite authors, and his novels are a masterpiece that makes you believe as if the events described could actually happen.:crystal_ball:  
+I spend a lot of my free time reading philosophy, psychology, life experiences, and technology. I found reading is a way to learn and benefit from peoples' experiences, give me a new perspective on things, and explore new ideas. Haruki Murakami is one of my favorite authors, and his novels are a masterpiece that makes you believe as if the events described could actually happen.:crystal_ball:  
 Also, I love [Mana](https://mana.net/) and [Thmanyah](https://thmanyah.com/) articles.   
 
 
